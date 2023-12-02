@@ -1,4 +1,4 @@
-Game can be played here: 
+Game can be played here: https://aralsea60.itch.io/food-smashing-everlasting
 
 
 How to Play:
